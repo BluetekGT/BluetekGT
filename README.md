@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @BluetekGT or 'Bluetek Generations' or 'Bluetech' :)
+- 📫 To reach or contact me, send an email to bluetek.generations@gmail.com. I will try to respond ASAP!
